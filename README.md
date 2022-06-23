@@ -1,2 +1,3 @@
 uma batata com sérios problemas mentais...
 <b>aaaaaaaaaaaaaaaaaaaaaaaa</b>
+<img>https://tenor.com/es/ver/hamster-camera-fan-stare-staring-gif-13361829<img>
